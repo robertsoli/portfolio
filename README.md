@@ -7,10 +7,13 @@
 - Driven individual who is a team player, and who works with initiative to get results
 - Proven track record of technical capability, work ethic of a high standard and strong people skills
 - Ability to produce detail oriented work of a high standard
-- Ability to manage individuals, be a team leader and produce quality work independantly
-- Subscriber to the ethos of life long learning
+- Ability to manage individuals, be a team leader and produce quality work independently
 
 ---
+
+### Tehnical Skills
+
+
 
 ### Work Experience
 
